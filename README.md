@@ -2,7 +2,7 @@
 - 👀 I’m interested in writing sorted code.
 - 🌱 I’m currently learning how to stay calm everyday.
 - 💞️ I’m not looking for any collabaration.
-- 📫 How to reach me - No need to reach me unless it's an code emergency.
+- 📫 How to reach me - No need to reach me unless it's a code emergency.
 - 😄 Pronouns: Neha, Neha ji, Nirwan, Oye Neha(applicable for only seniors i.e. Raja Sir)
 - ⚡ Fun fact: I am a Poor Programmer.
 
