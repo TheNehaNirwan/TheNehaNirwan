@@ -1,6 +1,6 @@
-- 👋 Hi, I’m Neha Nirwan, developer @Ilizien
+- 👋 Hi, I’m Neha Nirwan, developer @Ilizien.
 - 👀 I’m interested in writing sorted code.
-- 🌱 I’m currently learning how to saty calm everyday .
+- 🌱 I’m currently learning how to stay calm everyday.
 - 💞️ I’m not looking for any collabaration.
 - 📫 How to reach me - No need to reach me unless it's an code emergency.
 - 😄 Pronouns: Neha, Neha ji, Nirwan, Oye Neha(applicable for only seniors i.e. Raja Sir)
